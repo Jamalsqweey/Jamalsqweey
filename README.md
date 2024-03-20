@@ -1,9 +1,6 @@
- M2S™️ ConglomeratGroupInc. JamalM2S®️ PiddingAI®️ AIzoo®️
-- 👀 What about Eskimo? 
-- We love learn about your 🌏 and any assistance is welcome 🫡
-- We try develop rockets and space stations 🚀🛰️
-New ai soon paddingwivi🦜
-<!---
-Jamalsqweey/Jamalsqweey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ M2S™️ ConglomeratGroupInc. JamalM2S®️ PiddingAI®️ AIzoo®️ Yashimmi®️ Deep_Jungle
+ 👽 Greetings, Earthlings!👽
+
+ All projects ☝️ is in developer proccess🏗️🚧 Our mission is to create super computational knowledge spaceBot for tell us the truth..👁️‍🗨️
+ We build space stations🛰️ and create spaceships 🚀 and develop space elevator 🛗 for future, and space ladders for past 🪜 ...
+ We r part of Xfiles group🚬 ...The truth is out there..🗿
